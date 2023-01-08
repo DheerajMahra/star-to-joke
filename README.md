@@ -1,1 +1,1 @@
-What kind of tree fits in your hand? A palm tree!
+How do you organize a space party? You planet.
