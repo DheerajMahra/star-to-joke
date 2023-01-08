@@ -1,1 +1,1 @@
-What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
