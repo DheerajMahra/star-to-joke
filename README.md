@@ -1,1 +1,1 @@
-What's the difference between a seal and a sea lion? An ion!
+Did you hear about the hungry clock? It went back four seconds.
