@@ -1,1 +1,1 @@
-Did you hear about the hungry clock? It went back four seconds.
+What creature is smarter than a talking parrot? A spelling bee.
