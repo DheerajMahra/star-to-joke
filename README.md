@@ -1,1 +1,1 @@
-What creature is smarter than a talking parrot? A spelling bee.
+How come a man driving a train got struck by lightning? He was a good conductor.
