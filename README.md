@@ -1,1 +1,1 @@
-What do prisoners use to call each other? Cell phones.
+How do you know if there’s an elephant under your bed? Your head hits the ceiling!
