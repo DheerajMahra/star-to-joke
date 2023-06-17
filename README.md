@@ -1,1 +1,1 @@
-Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+What did the left eye say to the right eye? Between us, something smells!
