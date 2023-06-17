@@ -24,7 +24,7 @@ jobs:
           setup="${{ fromJson(steps.joke.outputs.response).setup }}"
           punchline="${{ fromJson(steps.joke.outputs.response).punchline }}"
           finalJoke="${setup} ${punchline}"
-          echo "😂 [${{ github.actor }}](https://github.com/${{ github.actor }})  => ${finalJoke}" >>| README.md
+          echo "😂 [${{ github.actor }}](https://github.com/${{ github.actor }})  => ${finalJoke}" >> README.md
       
       - name: Committing files
         run: |
