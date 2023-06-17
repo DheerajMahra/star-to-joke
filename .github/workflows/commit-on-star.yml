@@ -28,8 +28,8 @@ jobs:
       
       - name: Committing files
         run: |
-          git config --local user.email "dheerajmahra873@gmail.com"
-          git config --local user.name "DheerajMahra"
+          git config --local user.email "awsmyo1234@gmail.com"
+          git config --local user.name "DeepakR-28"
           git add .
           git commit -m "⭐️ ${{ github.actor }} starred this repo to commit a random joke in README.md"
       
