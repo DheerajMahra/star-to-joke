@@ -1,1 +1,1 @@
-How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+How do you find Will Smith in the snow? Look for fresh prints.
