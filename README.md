@@ -1,1 +1,1 @@
-Why are skeletons so calm? Because nothing gets under their skin.
+what do you call a dog that can do magic tricks? a labracadabrador
