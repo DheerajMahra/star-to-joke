@@ -1,1 +1,1 @@
-What did the left eye say to the right eye? Between us, something smells!
+Why are skeletons so calm? Because nothing gets under their skin.
