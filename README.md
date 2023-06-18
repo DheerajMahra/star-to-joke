@@ -31,6 +31,3 @@
 😂 [Vidushiii](https://github.com/Vidushiii) => How do you know if there’s an elephant under your bed? Your head hits the ceiling!
 
 😂 [rushi-173](https://github.com/rushi-173) => How do you find Will Smith in the snow? Look for fresh prints.
-
-
-
