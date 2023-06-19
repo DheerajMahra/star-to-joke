@@ -34,3 +34,5 @@
 
 😂[DheerajMahra](https://github.com/DheerajMahra)  => did you know the first French fries weren't cooked in France? they were cooked in Greece 
 
+
+ 😂 [DheerajMahra](https://github.com/DheerajMahra)  => What do birds give out on Halloween? Tweets.
