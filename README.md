@@ -40,3 +40,5 @@
  😂 [deepakr-28](https://github.com/deepakr-28)  => Why do pumpkins sit on people’s porches? They have no hands to knock on the door.
 
  😂 [varchasvipandey](https://github.com/varchasvipandey)  => Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+
+ 😂 [chetanraj](https://github.com/chetanraj)  => What do you call an eagle who can play the piano? Talonted!
