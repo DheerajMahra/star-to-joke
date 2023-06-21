@@ -1,4 +1,6 @@
-😂 [chetanraj](https://github.com/chetanraj)  => What do you call an eagle who can play the piano? Talonted!
+😂 [deepakr-28](https://github.com/deepakr-28)  => Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+
+ 😂 [chetanraj](https://github.com/chetanraj)  => What do you call an eagle who can play the piano? Talonted!
 
 😂 [varchasvipandey](https://github.com/varchasvipandey)  => Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
 
@@ -41,21 +43,3 @@
 😂 [harshith-venkatesh](https://github.com/harshith-venkatesh ) => How come a man driving a train got struck by lightning? He was a good conductor.
 
 😂 [Good4lien](https://github.com/Good4lien) => What do you call a girl between two posts? Annette.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
