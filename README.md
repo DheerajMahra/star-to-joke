@@ -1,4 +1,6 @@
-😂 [deepakr-28](https://github.com/deepakr-28)  => Did you hear about the guy whose whole left side was cut off? He's all right now.
+😂 [deepakr-28](https://github.com/deepakr-28)  => What type of music do balloons hate? Pop music!
+
+ 😂 [deepakr-28](https://github.com/deepakr-28)  => Did you hear about the guy whose whole left side was cut off? He's all right now.
 
  😂 [DheerajMahra](https://github.com/DheerajMahra) => What kind of tree fits in your hand? A palm tree!
 
