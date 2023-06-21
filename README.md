@@ -1,8 +1,24 @@
-😂 [deepakr-28](https://github.com/deepakr-28)  => What type of music do balloons hate? Pop music!
+😂 [chetanraj](https://github.com/chetanraj)  => What do you call an eagle who can play the piano? Talonted!
 
- 😂 [deepakr-28](https://github.com/deepakr-28)  => Did you hear about the guy whose whole left side was cut off? He's all right now.
+😂 [varchasvipandey](https://github.com/varchasvipandey)  => Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
 
- 😂 [DheerajMahra](https://github.com/DheerajMahra) => What kind of tree fits in your hand? A palm tree!
+😂 [deepakr-28](https://github.com/deepakr-28)  => Why do pumpkins sit on people’s porches? They have no hands to knock on the door.
+
+😂 [DheerajMahra](https://github.com/DheerajMahra)  => What do birds give out on Halloween? Tweets.
+
+😂 [DheerajMahra](https://github.com/DheerajMahra) => What kind of tree fits in your hand? A palm tree!
+
+😂[DheerajMahra](https://github.com/DheerajMahra)  => did you know the first French fries weren't cooked in France? they were cooked in Greece 
+
+😂 [rushi-173](https://github.com/rushi-173) => How do you find Will Smith in the snow? Look for fresh prints.
+
+😂 [deepakr-28](https://github.com/deepakr-28) => what do you call a dog that can do magic tricks? a labracadabrador
+
+😂 [Daggerhub](https://github.com/Daggerhub) => Why are skeletons so calm? Because nothing gets under their skin.
+
+😂 [vikiboss](https://github.com/vikiboss) => Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+
+😂 [Vidushiii](https://github.com/Vidushiii) => How do you know if there’s an elephant under your bed? Your head hits the ceiling!
 
 😂 [Stackio22](https://github.com/Stackio22) => How do you organize a space party? You planet.
 
@@ -26,25 +42,20 @@
 
 😂 [Good4lien](https://github.com/Good4lien) => What do you call a girl between two posts? Annette.
 
-😂 [vikiboss](https://github.com/vikiboss) => Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
-
-😂 [Daggerhub](https://github.com/Daggerhub) => Why are skeletons so calm? Because nothing gets under their skin.
-
-😂 [deepakr-28](https://github.com/deepakr-28) => what do you call a dog that can do magic tricks? a labracadabrador
-
-😂 [Vidushiii](https://github.com/Vidushiii) => How do you know if there’s an elephant under your bed? Your head hits the ceiling!
-
-😂 [rushi-173](https://github.com/rushi-173) => How do you find Will Smith in the snow? Look for fresh prints.
-
-😂[DheerajMahra](https://github.com/DheerajMahra)  => did you know the first French fries weren't cooked in France? they were cooked in Greece 
 
 
- 😂 [DheerajMahra](https://github.com/DheerajMahra)  => What do birds give out on Halloween? Tweets.
 
- 😂 [deepakr-28](https://github.com/deepakr-28)  => Why do pumpkins sit on people’s porches? They have no hands to knock on the door.
 
- 😂 [varchasvipandey](https://github.com/varchasvipandey)  => Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
 
- 😂 [chetanraj](https://github.com/chetanraj)  => What do you call an eagle who can play the piano? Talonted!
 
- 😂 [deepakr-28](https://github.com/deepakr-28)  => Did you hear about the hungry clock? It went back four seconds.
+
+
+
+
+
+
+
+
+
+
+
