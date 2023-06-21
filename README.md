@@ -42,3 +42,5 @@
  😂 [varchasvipandey](https://github.com/varchasvipandey)  => Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
 
  😂 [chetanraj](https://github.com/chetanraj)  => What do you call an eagle who can play the piano? Talonted!
+
+ 😂 [deepakr-28](https://github.com/deepakr-28)  => Did you hear about the hungry clock? It went back four seconds.
