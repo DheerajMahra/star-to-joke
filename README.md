@@ -1,4 +1,6 @@
-😂 [DheerajMahra](https://github.com/DheerajMahra)  => What do you call a monkey in a mine field? A babooooom!
+😂 [DheerajMahra](https://github.com/DheerajMahra)  => What do you call a pig that knows karate? A pork chop!
+
+ 😂 [DheerajMahra](https://github.com/DheerajMahra)  => What do you call a monkey in a mine field? A babooooom!
 
  😂 [deepakr-28](https://github.com/deepakr-28)  => Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
 
