@@ -1,4 +1,6 @@
-😂 [DheerajMahra](https://github.com/DheerajMahra)  => What do you call a pig that knows karate? A pork chop!
+😂 [manasvi-pandey](https://github.com/manasvi-pandey)  => Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+
+ 😂 [DheerajMahra](https://github.com/DheerajMahra)  => What do you call a pig that knows karate? A pork chop!
 
  😂 [DheerajMahra](https://github.com/DheerajMahra)  => What do you call a monkey in a mine field? A babooooom!
 
