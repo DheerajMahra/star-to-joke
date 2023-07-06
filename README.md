@@ -1,4 +1,6 @@
-😂 [manasvi-pandey](https://github.com/manasvi-pandey)  => Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+😂 [RishabhJain999](https://github.com/RishabhJain999)  => There are 10 types of people in this world... Those who understand binary and those who don't
+
+ 😂 [manasvi-pandey](https://github.com/manasvi-pandey)  => Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
 
  😂 [DheerajMahra](https://github.com/DheerajMahra)  => What do you call a pig that knows karate? A pork chop!
 
